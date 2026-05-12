@@ -1,4 +1,4 @@
-#  
+#  premium kaizen Script is the best kaizen Script, featuring auto-collect and fly. Safe and powerful for all your needs.
 
 
 
